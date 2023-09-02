@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @marcusxryanxtylerxjohn
+- 👀 I’m (currently) interested in making decompiles and games
+- 🌱 I’m currently learning python finally
+- 💞️ I’m looking to collaborate on nothing with no name
+- 📫 join my discord server if u wanna ask questions  https://discord.gg/ntUs24DqQs
+- also im a minor(under 18)
